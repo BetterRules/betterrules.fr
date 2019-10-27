@@ -1,2 +1,2 @@
 # betterrules.fr
-https://betterrules.nz
+https://betterrules.fr
